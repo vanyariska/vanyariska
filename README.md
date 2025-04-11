@@ -1,7 +1,3 @@
-Hi Im Vanyariska Indriani, Im now in my sixth semester at Stikubank University Semarang, pursuing a degree in
-Informatics Engineering. I actively participate in a variety of student activities in addition to my
-committed concentration on academic interests. I am confident that the combination of my
-academic experience and engagement in various student organizations has adequately prepared
-me for my move to the professional world. With confidence in my skills, I am willing to
-contribute positively to any workplace environment.
+A detail-oriented and adaptable professional with expertise in data management, reporting, website administration, and digital branding, dedicated to helping businesses make data-driven decisions. With strong public speaking and communication skills, I excel in engaging with diverse stakeholders, whether in data analytics or product outreach.
 
+My experience across various projects and organizational roles has honed my ability to collaborate in teams, think analytically, and develop effective solutions. With a growth mindset and a passion for continuous learning, I am committed to optimizing data, improving efficiency, and driving positive impact for businesses. 🚀
